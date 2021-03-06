@@ -30,7 +30,9 @@ Pretty -phobic if you ask me. But mainly ironically.
 :arrow_forward: [Youtube](https://youtube.com/Calamity34) \
 :bird: [Twitter](https://twitter.com/clmty_) \
 :video_game: [Steam](https://steamcommunity.com/id/Calamity34) \
-:left_speech_bubble: [Discord](https://discord.gg/gyXNpJ6T6j)
+:left_speech_bubble: [Discord](https://discord.gg/gyXNpJ6T6j) \
+:ru: [Telegram Channel](https://t.me/calamitythoughts)
+
 
 # Chads :muscle::
 Arslee :chicken: - [profile](https://github.com/arslee07) \
