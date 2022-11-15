@@ -16,3 +16,6 @@
 ░░░░░░░░░░░░░░▀▄▄▄▄▄░░░░░█
 ```
 welcome. i code stuff.
+
+
+now on [codeberg](https://codeberg.org/calamity)
